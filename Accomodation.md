@@ -1,5 +1,5 @@
 ## DoubleTree by Hilton Chicago Midway Airport
-$2,085 total
+$1,737.60 total
 for 2 rooms
 includes taxes & fees
 ### Dates: March 22 - March 27
